@@ -16,6 +16,8 @@ I'm Jahnavi Chauhan
 https://www.linkedin.com/in/jahnavi-chauhan-271253209/ 
 
 chauhankhushi.16775@gmail.com 
+ or
+jahnavi.chauhan2020@vitbhopal.ac.in  
 
 
 <!--
