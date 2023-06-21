@@ -1,5 +1,5 @@
 # 💫 About Me:
-I’m currently persuing Computer Science and Engineering .<br><br>💻 Python | JAVA | HTML | CSS | KOTLIN<br><br>🌱 I’m currently learning JAVA, Kotlin ,DSA.<br><br>⚡ Member of the winning team in GeekWeekLocal: GWL hackathon 2021 by GeeksForGeeks.<br><br> 
+I’m currently persuing Computer Science and Engineering .<br><br>💻 Python | JAVA | HTML | CSS | KOTLIN<br><br>🌱 I’m currently learning JAVA, Kotlin ,DSA.<br><br>⚡ Member of the winning team in GeekWeekLocal: GWL hackathon 2021 by GeeksForGeeks.<br><br> Check out my Portfolio : https://chauhankhushi16775.wixsite.com/mysite <br><br>
 
 
 ## 🌐 Socials:
